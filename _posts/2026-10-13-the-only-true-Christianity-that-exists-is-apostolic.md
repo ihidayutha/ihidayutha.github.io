@@ -11,8 +11,6 @@ Is not apostolic Christianity the Hidden Pearl?
 
 See: Marganitha 
 
-Amen. 
-
 What are the marks of apostolic tradition and teaching? 
 
 What are the pillars of early Christianity? 
@@ -29,7 +27,7 @@ Breaking bread in community, communal meals is the third pillar of the early chu
 
 So we can clearly see where apostolic tradition is being practiced today. 
 
-For now, we fund it in the Sikh Sangat. 
+For now, we find it in the Sikh Sangat. 
 
 That is why I remain where the apostolic tradition and practice continues.
 
