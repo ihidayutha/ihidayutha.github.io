@@ -1,12 +1,13 @@
 theme: jekyll-theme-chirpy
 lang: en
 
-title: Library
+title: ihidayutha
 tagline: ""
 description: ""
+avatar: /assets/777-7.jpg
 
 url: "https://ihidayutha.github.io"
-baseurl: "/library"
+baseurl: ""
 
 github:
   username: ihidayutha
