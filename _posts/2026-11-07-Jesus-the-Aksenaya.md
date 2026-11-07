@@ -1,0 +1,719 @@
+JESUS THE AKSENAYA
+
+THE ONE SELF-EXISTENT AKSENAYA
+
+ALL OTHER AKSENAYE HAVE THEIR BEING IN HIM
+
+IM REALLY INTERESTED IN: 
+
+ORTHODOXY
+SIKHISM 
+SUFISM
+EARLY METHODISM
+MESSALIANISM (LIBER-GRADUUM AND PSEUDO-MACARIUS)
+SYRIAC FATHERS 
+AKSENAYUTHA 
+
+THE LIST GOES UP IN RANK BECAUSE AKSENAYUTHA IS THE HIGHEST RANK 
+
+AKSENAYUTHA IS POSSIBLE TODAY IF WE FOLLOW DIDACHE (SEE FURTHER BELOW FOR EXPLANATION)
+
+LORD YOU HAVE BEEN CALLING ME TO AKSENAYUTHA SINCE 2016 AT LEAST WHEN YOU FIRST OPENED TO ME THE NOMADIC THEME IN SCRIPTURE 
+
+NANAK WAS AKSENAYUTHA 
+
+SO WE CAN LEARN FROM ALL AKSENAYUTHA 
+
+THE AKSENAYUTHA ARE THE HIGHEST RANK 
+
+SULAMI RANKED THE MALAMATIYYA ABOVE SUFISM, A RANKING WHICH IS REPEATED BY IBN ARABI 
+
+THE MALAMATIYYA ARE THE HIGHEST RANK BECAUSE THEY ARE THE AKSENAYE 
+
+THE AKSENAYE ARE THE HIGHEST RANK 
+
+THAT'S WHY I WILL VISIT THE YOUTH WHO TOOK DIKSHA AND ARE NOW AKSENAYE PRACTICING AKSENAYUTHA (VIHAR)
+
+OTHERWISE KNOWN AS 
+
+PERMANENT PILGRIMAGE
+ITINERANCY
+XENITEIA
+PEREGRINATIO
+SIYAHA 
+
+AL-TUSTARI DESCRIBES SIYAHA AS THE WAY HE STRENGTHENED (MAINTAINED) HIS ZUHD (RUNCIATION OF THE WORLD) 
+
+THROUGH BAPTISM WE RENOUNCE THE WORLD LIKE MAR SABA AND MAR MILES 
+
+AND THROUGH AKSENAYUTHA WE MAINTAIN OUR RENUNCIATION OF THE WORLD 
+
+In 1200, when he was 35, Ibn Arabi left Spain permanently for the Orient. It was the beginning of itinerant life (siyaha) that took him to Arabia, Egypt, Iraq, Syria, Asia Minor and continued until 1223 (age 58), when he settled permanently in Damascus. There he spent the last 17 years of his life (until age 75), teaching and writing. An encounter in Mecca in 1201, during his first sojourn there, influenced the orientation of his thought. 
+
+THE AKSENAYE ARE THE HIGHEST RANK BECAUSE THEY COME FROM DIDACHE 
+
+I UNDERSTOOD AKSENAYUTHA IS POSSIBLE TODAY IF WE FOLLOW DIDACHE 
+
+THE AKSENAYE ARE THE PERMANENT PILGRIMS 
+
+THOSE ON PERMANENT PILGRIMAGE
+
+THE FIRST STEP OF THE IHIDAYE
+
+THOSE WHO FOLLOW IN THE FOOTSTEPS OF 
+
+ISA MASIH
+JESUS THE CHRIST
+JESUS THE ANOINTED ONE
+JESUS THE AKSENAYA
+
+THE ONE SELF-EXISTENT AKSENAYA
+
+ALL AKSENAYE ARE ANOINTED BY HIM
+
+TO RECEIEVE THE ANOINTING WE MUST BE AKSENAYE
+
+THEY GO TOGETHER
+
+ANOINTING AND AKSENAYUTHA
+
+THAT'S WHAT I REALIZED
+
+IN MY SEARCH FOR THE ANOINTING
+
+IT HAS LED ME TO AKSENAYUTHA
+
+BECAUSE IT IS THE AKSENAYE THAT ARE ANOINTED
+
+TO RECIEVE THE BAPTISM OF THE SPIRIT
+
+THE ANOINTING OF THE SPIRIT
+
+WE MUST RENOUNCE THE WORLD THROUGH CHRISTIAN DIKSHA (BAPTISM)
+
+RENOUNCING THE WORLD MEANS RENOUNCING ALL THINGS INCLUDING A HOME
+
+DOES THAT MEAN WE DON'T WORK
+
+RATHER THE OPPOSITE
+
+WE CAN ONLY REMAIN AKSENAYE IF WE WORK
+
+AKSENAYUTHA IS ONLY POSSIBLE IF WE FOLLOW DIDACHE
+
+THE APOSTOLIC MODEL
+
+WORKING WITH OUR HANDS
+
+THAT IS WHAT ALEXANDER AKIMETES UNDERSTOOD
+
+AND SUNDAR SINGH
+
+NANAK
+
+MALAMATIYYA
+
+The Jain monks have no home of their own, unlike the Christian monks. They must continuously be on the move, and subsist on the food provided by others. 
+
+UNLIKE THE CHRISTIAN MONKS?
+
+LORD PLEASE FIX THAT MISCONCEPTION
+
+THEY ARE SAYING CHRISTIAN MONKS ARE NOT ITINERANT
+
+THAT THEY ARE NOT AKSENAYE
+
+WHEN THE VERY DEFINITION OF THE IHIDAYE IS AKSENAYE
+
+I WILL VISIT THE JAIN AKSENAYE
+
+JAINS HAVE BOTH MEN AND WOMEN AKSENAYE
+
+Male aksenaye = munis /sadhus
+
+Female aksenaye = aryikas / sadhvis
+
+Rishibhai Zaveri is now known as RushiHem Vijay in Manas Mandir Tirth, Shahpur, Maharashtra
+
+I CAN ALSO ASK HIM ABOUT TANJA AND KARAN SHAH IN VADODARA, GUJARAT AND RITABEN
+
+BUT I WILL ALSO VISIT NANKANA AND OTHER PLACES AND TRY TO FIND THE SIKH AND CHRISTIAN AKSENAYE IN INDIA
+
+I WILL TRY TO FIND THE SUFI AKSENAYE IN ETHIOPIA AND OTHER PLACES
+
+I WILL EVEN TRY TO FIND THE SYRIAC AKSENAYE IF THEY EXIST IN THE WORLD
+
+SEE: JINGJIAO 
+
+Aimutta asked, What is diksha? Gautam Swami explained to him that when someone wants to go on a spiritual path, he must give up his house, family and all other social and economical ties, and then he becomes a monk like himself. This is called diksha. 
+
+THE LORD WAS THE FIRST SADHU AND MUNI 
+
+THE FIRST AKSENAYA 
+
+THE FIRST TO TAKE DIKSHA 
+
+HE IS THE FOUNDER OF DIKHSA AND AKSENAYUTHA 
+
+WE ALL FOLLOW IN HIS FOOTSTEPS AND THOSE WHO FOLLOWED IN HIS FOOTSTEPS 
+
+LIKE AL-MISRI 
+
+HE WAS THE QUTB OF HIS TIME 
+
+The qutb in Ibn-Arabi's time was from Malamatiyya (qv) 
+
+Al-Misri (qv) and Nanak (qv) were the qutb in their day. 
+
+Do we see a pattern? 
+
+Malamatiyya are aksenaye (itinerant tariqa). 
+
+Al-Misri and Nanak are aksenaye. 
+
+Sulami and Ibn Arabi said Malamatiyya are the highest rank. 
+
+Aksenayutha (siyaha) is the highest rank. 
+
+BUT AKSENAYUTHA (XENITEIA) IS THE FIRST STEP 
+
+XENITEIA IS THE FIRST STEP OF THE IHIDAYE
+
+THE FIRST STEP OF THE IHIDAYE (THOSE WHO TAKE CHRISTIAN DIKSHA, THAT IS, THE ONE BAPTISM FOR THERE IS ONLY ONE BAPTISM AS THERE IS ONLY ONE SPIRIT AND ONE BODY AND ONE LORD WHO IS THE HEAD OF THE BODY AND ONE FAITH AND ONE GOD AND FATHER OF ALL WHO IS OVER ALL AND THROUGH ALL AND IN ALL, EPHESIANS 4:4) 
+
+THE JAIN MONKS PRACTICE AKSENAYUTHA
+
+VIHAR
+ITINERANCY
+XENITEIA
+SIYAHA
+PEREGRINATIO
+
+RISHIBHAI TOOK DIKSHA (VIHAR) AT 30?
+
+SO DID GURU NANAK 
+
+THEY FOLLOWED THE WAY OF THE MASTER WHO TOOK DIKSHA (VIHAR) AT AGE 30 
+
+SADHU SUNDAR SINGH AT 17 (ONE OF THE GREATEST SADHUS THAT EVER LIVED) 
+
+I WILL FOLLOW IN HIS FOOTSTEPS TOO AS HE FOLLOWED THE MASTER 
+
+IBN ARABI AT 35 
+
+AL GHAZALI AT 38 
+
+I WILL TAKE IT AT 39 
+
+IF SOMEONE HAS SOMETHING I DON'T HAVE AND I SENSE IT, I WILL GO AND LEARN FROM THEM 
+
+THAT IS THE ONLY WAY WE CAN LEARN
+
+WHAT ARE WE LEARNING?
+
+AND HOW ARE WE LEARNING?
+
+DO YOU KNOW WHAT ISA MASIH CAME TO TEACH?
+
+HE CAME TO TEACH PEOPLE THE SPIRIT FILLED LIFE
+
+THE ANOINTED LIFE
+
+THE AKSENAYUTHA LIFE
+
+HE TAUGHT US HOW TO LEARN 
+
+WE LEARN THE SPIRIT FILLED LIFE BY ASSOCIATION
+
+THEREFORE, WHO ARE YOU ASSOCIATING WITH?
+
+WHO IS YOUR ASSOCIATION?
+
+WHO IS YOUR AFFILIATION
+
+WHO IS POLISHING YOU?
+
+WHO IS SHARPENING YOU?
+
+ARE YOU BEING SHARPENED?
+
+WITHOUT AKSENAYUTHA WE CANNOT BE POLISHED
+
+WE CANNOT BE SHARPENED
+
+WE ARE CALLED TO FOLLOW CHRIST THE AKSENAYA
+
+TO BE AKSENAYE WHO ARE LEARNING AKSENAYUTHA BY ASSOCIATION
+
+BECAUSE NOT ONLY DID ISA (YESHUA) SHOW US WHAT WE NEED TO LEARN BY EXAMPLE = AKSENAYUTHA, THE SPIRIT-FILLED LIFE
+
+HE ALSO SHOWED US HOW WE ARE TO LEARN 
+
+HE TAUGHT HIS DISCIPLES BY LIVING WITH THEM
+
+BY ASSOCIATION
+
+BY POLISHING
+
+BY SHARPENING
+
+BY BEING THE EXAMPLE
+
+SO THAT OTHERS CAN FOLLOW HIM
+
+SO WE LEARN AKSENAYUTHA FROM ALL THE AKSENAYE IN THE WORLD 
+
+ALL THOSE WHO ARE FOLLOWING THE MASTER
+
+REMEMEBER 
+
+THERE IS TRUE AND FALSE AKSENAYE 
+
+TRUE AND FALSE AKSENAYUTHA 
+
+TRUE AND FALSE VIHAR 
+
+TRUE AND FALSE SIYAHA 
+
+TRUE AND FALSE MALAMATIYYA 
+
+TRUE AND FALSE XENITEIA 
+
+TRUE AND FALSE SUFISM 
+
+TRUE AND FALSE SADHUS 
+
+AND REALITY IS RECOGNIZABLE AND SELF EVIDENT 
+
+THE WITNESS OF THE SPIRIT IS THE GREATEST PROOF
+
+WE LEARN THAT FROM THE METHODISTS
+
+LORD I EVEN ASK TO FIND THE METHODIST AKSENAYE
+
+GLADYS AYLWARD WAS A TRUE AKSENAYE
+
+THE AKSENAYE DISCERN ALL THINGS BUT THEMSELVES ARE DISCERNED BY NO ONE (1 CORINTHIANS 2:15)
+
+OTHER THAN THOSE TO WHOM THE FATHER CHOOSES TO REVEAL 
+
+BECAUSE EVEN IN THE DAYS OF THE MASTER AND THE APOSTLES
+
+THE MOST MIRACULOUS SIGNS AND MIRACLES WERE PERFORMED 
+
+BUT ONLY A FEW BELIEVED AND FOLLOWED THE SELF-EXISTENT AKSENAYA AND HIS AKSENAYE
+
+SO IT WILL ALWAYS BE A MIGHTY MINORITY 
+
+BUT IT IS FOR THIS MIGHTY MINOROTY THAT THE LORD CREATED THE HEAVENS AND THE EARTH AND WHO WILL INHABIT THE NEW HEAVEN AND THE NEW EARTH WHEN THE PRESENT HEAVEN AND EARTH PASS AWAY IN THE REGENRATION OF ALL THINGS 
+
+IT IS THEN THAT THOSE WHO ARE CONSIDERED WORTHY TO ATTAIN TO THAT AGE WILL BE LIKE ANGELS 
+
+Luke 20:35-36 
+Those who are considered worthy to attain that age, and the resurrection from the dead, neither marry nor are given in marriage; nor can they die anymore because they are like angels and are children of God, being children of the resurrection. 
+
+Matthew 19:28-29 
+Jesus said to them, Truly I say to you, that in the Regeneration, when the Son of Man sits on the throne of His glory, you who have followed Me will also sit on twelve thrones, judging the twelve tribes of Israel. And everyone who has left houses or brothers or sisters or father or mother or wife or children or lands, for My name’s sake, will receive a hundredfold, and inherit eternal life. 
+
+Mark 10:28-30 
+Peter began to say to Him, See, we have left everything and followed You. Jesus said, Truly, I say to you, there is no one who has left house or brothers or sisters or mother or father or children or lands, for my sake and for the gospel, who will not receive a hundredfold now in this time, houses and brothers and sisters and mothers and children and lands, with persecutions, and in the age to come eternal life. 
+
+Luke 18:28-30
+Peter said, See, we have left our homes and followed You. And He said to them, Truly, I say to you, there is no one who has left house or wife or brothers or parents or children, for the sake of the kingdom of God, who will not receive many times more in this time, and in the age to come eternal life. 
+
+WHEN WE STAY WITH PEOPLE FOR SOME TIME 
+
+WE WILL BE ABLE TO TELL WHO HAS THE REALITY 
+
+WHO IS LIVING IN THE REALITY 
+
+LIKE SADHU SUNDAR SINGH 
+
+IF THEY POSSESS THE REALITY 
+
+THEN WE CAN STAY WITH THEM AND LEARN FROM THEM 
+
+THAT IS THE ONLY WAY WE CAN LEARN
+
+THAT IS THE WAY THE MASTER TAUGHT US 
+
+THAT IS THE WAY THE EARLY CHURCH TAUGHT US 
+
+THAT IS HOW SUFISM IS TAUGHT 
+
+THE LORD IS THE FIRST SUFI 
+
+HE IS THE MASTER OF THE SUFIS 
+
+THAT'S WHY ALL SUFIS LEARN FROM HIM 
+
+THEREFORE WHAT ARE WE LEARNING?
+
+WE ARE LEARNING THE WAY OF THE MASTER
+
+THE SPIRIT-FILLED LIFE
+
+THE LUMINOUS RELIGION
+
+AKSENAYUTHA
+
+THE ANOINTED LIFE
+
+THE LIFE OF ISA MASIH
+
+JESUS THE AKSENAYA
+
+AND HOW DO WE LEARN?
+
+WE LEARN BY ASSOCIATION
+
+WE LEARN BY EXAMPLE
+
+WE LEARN BY POLISHING
+
+WE LEARN BY SHARPENING
+
+THAT IS THE ONLY WAY TO LEARN AND THAT IS THE ONLY THING WE ARE LEARNING
+
+In Sufism, the words "serve" and "company" denote learning or being polished (sharpened) by association with and in the company of and service of a teacher.
+
+This is the same in diksha.
+
+This is the teaching of Isa Masih
+
+He came to teach us the Anointed Life
+
+Do you want to learn?
+
+When Ibn Arabi says he served Fatima, it means he took her as his shaykh (one who's call has transformed them into a noble person).  
+
+Lord You were teaching me about this last year, the Sunday me and dad went to Marcus's church.  
+
+WE ARE SHARPENED, LEARN AND GROW THROUGH ASSOCIATION
+
+THAT IS WHY NOAH IS MARCUS' APPRENTICE
+
+HIS DISCIPLE
+
+YOU CAN SEE IT
+
+SO IS BRENTON BY ASSOCIATION
+
+AND SO WE DONT LEARN THROUGH ILM AL-KALAM
+
+ILM AL-KALAM IS OPPOSITE OF AKSENAYUTHA 
+
+ONLY THROUGH AKSENAYUTHA (VIHAR, SIYAHA, XENITEIA, PEREGRINATIO) WE LEARN TO FOLLOW ISA MASIH (JESUS THE AKSENAYE)
+
+LIKE SUNDAR SINGH 
+
+BUT VIHAR HAS TO BE THE REAL DEAL 
+
+REAL DEAL VIHAR IS DIDACHE 
+
+THAT IS WHAT THE LORD IS SAYING TO ME THIS MORNING 
+
+JUST FOLLOW DIDACHE SIMPLE 
+
+OPERATION DIDACHE 
+
+REMEMBER, IT IS THE FIRST STEP OF THE IHIDAYE 
+
+AKSENAYUTHA IS THE FIRST STEP OF THE IHIDAYE 
+
+AFTER THEY TAKE CHRISTIAN DIKHSA (THE ONE BAPTISM) 
+
+THAT IS WHAT MAR MILES AND ALL THE SAINTS TEACH US 
+
+EVEN NANAK 
+
+AND NANAK IS HIGHER RANK REMEMEBER 
+
+AKSENAYUTHA IS HIGHEST RANK 
+
+MALAMATIYYA IS HIGHEST RANK
+
+In the generation following al-Sulamī, the Malāmatiyya was absorbed into the Baghdadi Sufism of al-Junayd. 
+
+OK THAT MAKES SENSE NOW 
+
+IT'S THE AKSENAYUTHA AND DIDACHE TARIQA, THE WAY OF THE MASTER, THE MASTER'S TARIQA, THAT IS BEING PASSED DOWN THROUGH THE AGES FOR THOSE WHO HAVE EYES TO SEE 
+
+BUT IT IS NOT LINEAR 
+
+IT IS A WEB 
+
+IT SPREADS LIKE A NET 
+
+WE CAN TRACE THE NET 
+
+DIDACHE 
+
+MESSALIANS (PSEUDO-MACARIUS, LIBER GRADUUM) 
+
+ALEXANDER OF CONSTANTINOPLE 
+
+ACTS OF THOMAS 
+
+PSEUDO-CLEMENT LETTER TO VIRGINS 
+
+ODES OF SOLOMON 
+
+MAR MILES 
+
+Al-Misri to Al-Muhasibi (qv) Al-Ghazali (qv) and Ibn-Arabi (qv). Al-Ghazali to Sikhism through Alchemy of Happiness. 
+
+Or Syriac aksenaye to Al-Misri to Malamatiyya to Chistiyya to Sikhism is another lineage
+
+Sikhism was initially an itinerant tariqa remember
+
+It was initially aksenayutha
+
+Nanak was aksenaya 
+
+The aksenaye (malamatiyya) are the highest rank 
+
+IT IS THE RANK OF THE MASTER 
+
+THE WAY OF THE MASTER 
+
+Aksenayutha is higher rank than those living in dayras (monasteries) 
+
+The dayras, zawiyas, khankahs, gurdwaras exist for the aksenaye so that aksenayutha can exist in the world
+
+If aksenayutha can no longer exist in the world
+
+Than the aksenaye can no longer exist in the world
+
+And if aksenaye are ihidaye and ihidaye are the Church, then aksenayutha must remain until the end (do you follow?)
+
+The Church = aksenaye (those on permanent pilgrimage, those practicing aksenayutha)
+
+So if aksenayutha can no longer exist in the world then the Church can no longer exist in the world and that would mean the end of time
+
+The Church must exist until the Day of the Lord (Maranatha)
+
+And because Christ has not returned (Maranatha) then the Church still exists and therefore aksenayutha must still exist (you follow?)
+
+The Church = aksenaye
+
+There is no Church without aksenayutha
+
+It is the first step
+
+Therefore as the Church must remain until the Day of the Lord (Maranatha)
+
+So aksenayutha must remain until the Day of the Lord (Maranatha).
+
+AND SO THE KHANKAHS, ZAWIYAS, DAYRAS, MONASTERIES EXIST FOR THOSE WHO FOLLOW DIDACHE, THE WAY OF THE MASTER
+
+LORD YOU ARE EXPLAINING TO ME THIS MORNING THAT AKSENAYUTHA IS POSSIBLE IF WE FOLLOW DIDACHE 
+
+JUST FOLLOW DIDACHE 
+
+JUST FOLLOWING YOU LORD 
+
+JFJ TO THE END 
+
+DIDACHE IS THE HANDBOOK AND MANUAL 
+
+FOR EXAMPLE 
+
+AKSENAYUTHA IS POSSIBLE BECAUSE AKSENAYE TRAVEL FROM ONE DAYRA TO THE NEXT 
+
+ONE MONASTERY TO THE NEXT 
+
+ONE GURDWARA TO THE NEXT 
+
+ONE ZAWIYA TO THE NEXT 
+
+ONE KHANKAH TO THE NEXT 
+
+I UNDERSTOOD THAT THIS MORNING 
+
+The difference between the gädam (monastery) and zawiya is that most of the people staying in a zawiya, except for the shaykh and his family and some leaders, are there on a temporary basis as pilgrims. 
+
+Especially in rural areas, a zawiya can include several buildings to accommodate and feed the members of the tariqa who come and stay to be instructed by the shaykh as well as the visiting pilgrims. 
+
+So that was the message this morning 
+
+Palendrai we can stay for 3 days 
+
+Then we can stay at Свято-Духов монастырь (Вильнюс) 
+
+But I disobeyed Didache by not working with my hands 
+
+Didache only works when aksenaye work with their hands 
+
+That is the rule in the Didache 
+
+That is the apostolic rule 
+
+Even Sadhu Sundar Singh followed the rule 
+
+He was true aksenaya like you Lord
+
+But I disobeyed Lord and I'm sorry 
+
+They gave me work, but I did not show up for my assignment 
+
+Please help me to make it right Father 
+
+I will go there and work with my hands 
+
+Aksenaye can stay in Palendrai or any monastery or zawiya if we explain we are aksenaye (those who have renounced the world through Christian Diksha, the One Baptism) including our himes and we follow the Didache and travel from one monastery to another and ask for shelter and food in exchange for working with our hands.
+
+Therefore I need to print off the Didache in every language or translate it
+
+To show customs and police and authorities or politicians or kings or rulers or emperors or anyone who asks us about our xeniteia
+
+And dayras and zawiyas and gurdwaras exists for the aksenaye
+
+The aksenaye travel from one to another
+
+That is how they follow Didache
+
+That is how they follow Christ the Aksenaya
+
+Who told us to follow Him
+
+And learn aksenayutha from Him
+
+And even showed us how we must learn
+
+By association
+
+By example
+
+By polishing
+
+By sharpening
+
+SO AKSENAYUTHA IS POSSIBLE
+
+CHRISTIAN MONKS ARE NOT STATIONARY AS SOME ASSUME BECAUSE THEY FOLLOW CHRIST THE AKSENAYA
+
+IT IS ONLY THE FALSE CHRISTIAN MONKS WHO DO NOT PRACTICE AKSENAYUTHA
+
+BECAUSE THEY DONT FOLLOW CHRIST THE AKSENAYA
+
+AND THAT IS WHY PEOPLE SAY THINGS LIKE:
+
+The Jain monks have no home of their own; unlike the Christian monks, they must continuously be on the move, and subsist on the food provided freely by others. 
+
+Actually it is the other way around 
+
+I'm sorry to inform you but Christian means anointed one 
+
+CHRIST MEANS THE ANOINTED ONE 
+
+HE IS THE MASTER 
+
+HE IS THE ONE WHO BAPTIZES WITH THE HOLY SPIRIT 
+
+HE IS THE ONE WHO ANOINTS AND APPOINTS 
+
+HE IS THE ONE WHO CAME AS AKSENAYA AND LIVED AS AKSENAYA 
+
+THERE IS NO GREATER AKSENAYA THAN THE MASTER 
+
+HE IS THE ONE SELF-EXISTENT AKSENAYA 
+
+ALL OTHER AKSENYE HAVE THEIR EXISTENCE FROM HIM 
+
+SO WE FOLLOW HIM 
+
+AND IF THERE IS A MISCONCEPTION THAT CHRISTIAN IHIDAYE ARE NOT AKSENAYE 
+
+LORD I PRAY AT LEAST THROUGH MY LIFE 
+
+I WILL MAKE A CONTRIBUTION TO CORRECTING THIS MISCONCEPTION 
+
+BECAUSE THE IHIDAYE (CHRISTIANS) ARE AKSENAYUTHA 
+
+AND AKSENAYUTHA IS THE FIRST STEP OF THE IHIDAYE (CHRISTIANS) WHEN THEY TAKE CHRISTIAN DIKSHA (CHRISTIAN BAPTISM) AND RENOUNCE THE WORLD BY VOW 
+
+THAT IS THE CHRISTIAN INITIATION 
+
+CHRISTIANS RENOUNCE THE WOLRD THROUGH CHRISTIAN DIKSHA (BAPTISM) TO LIVE IN PERMANENT VIHAR 
+
+THEY FOLLOW THE WAY OF THE MASTER WHO RENOUNCED THE WOLRD THROUGH CHRISTIAN DIKSHA (BAPTISM) TO LIVE IN PERMANENT VIHAR 
+
+AND ALL WHO FOLLOW LIKE SADHU SUNDAR SINGH AND NANAK AND EVERYONE ELSE, FOLLOW IN THE FOOTSTEPS OF THE MASTER WHO IS THE FIRST AND ORIGINAL AKSENAYA 
+
+THE AUTHOR AND FINISHER OF AKSENAYUTHA IS THE LORD JESUS CHRIST (HE IS LORD OF ALL) 
+
+HE IS THE SELF-EXISTENT ONE 
+
+THE I AM THAT I AM 
+
+THE HEAD OF THE BODY 
+
+THE ROYAL PRIESTHOOD 
+
+IT IS FOR HIM THAT WE TAKE OVER AND SATAN GOES RUNNING FOR COVER 
+
+THROUGH HIM WE ARE UNSTOPPABLE 
+
+LORD JESUS 
+
+I COME BEFORE YOU THIS MORNING 
+
+I THANK YOU FOR SHOWING ME ABOUT HOW TO FOLLOW AKSENAYUTHA TODAY BY JUST FOLLOWING DIDACHE 
+
+AND SHOWING ME HOW I FAILED TO FOLLOW DIDACHE WHEN I WAS AT HOLY SPIRIT MONASTERY IN VILNIUS 
+
+PLEASE FORGIVE ME LORD AND HELP ME TO JUST FOLLOW YOU TO THE END 
+
+I DESIRE TO LEARN ABOUT CHRISTIAN INITIATION AND THE BAPTISM OF THE SPIRIT FROM THAT BOOK LORD 
+
+I UNDERSTAND THAT IS WHAT YOU HAVE BEEN TEACHING ME BEFORE AND NOW I SEE THERE IS A BOOK WRITTEN THAT EXPLAINS MORE ABOUT THIS 
+
+BECAUSE LORD YOU TAUGHT ME THAT ANOINTED MEANS APPOINTED FOR ITINERANCY 
+
+THE METHODISTS CLEARLY MODELLED THAT 
+
+THE SECOND BLESSING AND ITINERANCY 
+
+AND THAT IS FOLLOWING YOUR EXAMPLE LORD 
+
+BECAUSE YOU TAUGHT BY EXAMPLE 
+
+AND YOU EXPECT US TO TEACH IN THE SAME WAY 
+
+THAT IS WHY I PRAY LORD 
+
+THAT MY LIFE MAY BE THE BOOK ON AKSENAYUTHA MORE THAN ANYTHING 
+
+BECAUSE IT SEEMS THERE ARE MISCONCEPTIONS THAT IHIDAYE (CHRISTIANS, ANOINTED ONES) AND SOMEHOW NOT AKSENAYE 
+
+LIKE SOMEHOW ONLY JAIN IHIDAYE PRACTICE VIHAR (PERMANENT PILGRIMAGE) 
+
+BUT IT IS YOUR BODY, THOSE WHO BELONG TO YOU, YOUR CHURCH, YOUR ECCLESIA, YOUR BODY, THE PILLAR AND GROUND OF THE TRUTH, THE ROYAL PRIESTHOOD, THE HOLY NATION 
+
+WHO HAVE TO MODEL AKSENAYUTHA TO THE WORLD 
+
+BECAUSE WE REFLECT YOU LORD AND YOU ARE THE ORIGINAL AKSENAYA 
+
+YOU WENT ON XENITEIA FROM HEAVEN TO EARTH AND ON EARTH YOU HAD NO PLACE TO LAY YOUR HEAD 
+
+AND WE, THE IHIDAYE, YOUR SERVANTS, FOLLOW YOU LORD 
+
+WE FOLLOW YOU WHEREVER YOU GO LORD 
+
+Revelation 14:4-5
+It is these who have not defiled themselves with women, for they are virgins (ihidaye); these follow the Lamb wherever he goes. They have been redeemed from humankind as firstfruits for God and the Lamb, and in their mouth no lie was found; they are blameless.
+
+THERE'S ONLY ONE WAY TO LEARN
+
+THROUGH ASSOCIATION
+
+THROUGH POLISHING
+
+THROUGH SHARPENING
+
+ONLY THROUGH AKSENAYUTHA
+
+ONLY THROUGH THE WAY OF THE MASTER
+
+JFJ SIGNING OFF
