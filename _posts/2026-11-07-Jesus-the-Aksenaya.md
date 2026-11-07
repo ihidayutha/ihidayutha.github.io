@@ -7,11 +7,17 @@ ALL OTHER AKSENAYE HAVE THEIR BEING IN HIM
 IM REALLY INTERESTED IN: 
 
 ORTHODOXY
-SIKHISM 
+
+SIKHISM
+
 SUFISM
+
 EARLY METHODISM
+
 MESSALIANISM (LIBER-GRADUUM AND PSEUDO-MACARIUS)
-SYRIAC FATHERS 
+
+SYRIAC FATHERS
+
 AKSENAYUTHA 
 
 THE LIST GOES UP IN RANK BECAUSE AKSENAYUTHA IS THE HIGHEST RANK 
@@ -37,9 +43,12 @@ THAT'S WHY I WILL VISIT THE YOUTH WHO TOOK DIKSHA AND ARE NOW AKSENAYE PRACTICIN
 OTHERWISE KNOWN AS 
 
 PERMANENT PILGRIMAGE
+
 ITINERANCY
 XENITEIA
+
 PEREGRINATIO
+
 SIYAHA 
 
 AL-TUSTARI DESCRIBES SIYAHA AS THE WAY HE STRENGTHENED (MAINTAINED) HIS ZUHD (RUNCIATION OF THE WORLD) 
@@ -63,8 +72,11 @@ THE FIRST STEP OF THE IHIDAYE
 THOSE WHO FOLLOW IN THE FOOTSTEPS OF 
 
 ISA MASIH
+
 JESUS THE CHRIST
+
 JESUS THE ANOINTED ONE
+
 JESUS THE AKSENAYA
 
 THE ONE SELF-EXISTENT AKSENAYA
@@ -184,9 +196,13 @@ THE FIRST STEP OF THE IHIDAYE (THOSE WHO TAKE CHRISTIAN DIKSHA, THAT IS, THE ONE
 THE JAIN MONKS PRACTICE AKSENAYUTHA
 
 VIHAR
+
 ITINERANCY
+
 XENITEIA
+
 SIYAHA
+
 PEREGRINATIO
 
 RISHIBHAI TOOK DIKSHA (VIHAR) AT 30?
@@ -309,17 +325,13 @@ BUT IT IS FOR THIS MIGHTY MINOROTY THAT THE LORD CREATED THE HEAVENS AND THE EAR
 
 IT IS THEN THAT THOSE WHO ARE CONSIDERED WORTHY TO ATTAIN TO THAT AGE WILL BE LIKE ANGELS 
 
-Luke 20:35-36 
-Those who are considered worthy to attain that age, and the resurrection from the dead, neither marry nor are given in marriage; nor can they die anymore because they are like angels and are children of God, being children of the resurrection. 
+Those who are considered worthy to attain that age, and the resurrection from the dead, neither marry nor are given in marriage; nor can they die anymore because they are like angels and are children of God, being children of the resurrection (Luke 20:35-36).
 
-Matthew 19:28-29 
-Jesus said to them, Truly I say to you, that in the Regeneration, when the Son of Man sits on the throne of His glory, you who have followed Me will also sit on twelve thrones, judging the twelve tribes of Israel. And everyone who has left houses or brothers or sisters or father or mother or wife or children or lands, for My name’s sake, will receive a hundredfold, and inherit eternal life. 
+Jesus said to them, Truly I say to you, that in the Regeneration, when the Son of Man sits on the throne of His glory, you who have followed Me will also sit on twelve thrones, judging the twelve tribes of Israel. And everyone who has left houses or brothers or sisters or father or mother or wife or children or lands, for My name’s sake, will receive a hundredfold, and inherit eternal life (Matthew 19:28-29).
 
-Mark 10:28-30 
-Peter began to say to Him, See, we have left everything and followed You. Jesus said, Truly, I say to you, there is no one who has left house or brothers or sisters or mother or father or children or lands, for my sake and for the gospel, who will not receive a hundredfold now in this time, houses and brothers and sisters and mothers and children and lands, with persecutions, and in the age to come eternal life. 
+Peter began to say to Him, See, we have left everything and followed You. Jesus said, Truly, I say to you, there is no one who has left house or brothers or sisters or mother or father or children or lands, for my sake and for the gospel, who will not receive a hundredfold now in this time, houses and brothers and sisters and mothers and children and lands, with persecutions, and in the age to come eternal life (Mark 10:28-30).
 
-Luke 18:28-30
-Peter said, See, we have left our homes and followed You. And He said to them, Truly, I say to you, there is no one who has left house or wife or brothers or parents or children, for the sake of the kingdom of God, who will not receive many times more in this time, and in the age to come eternal life. 
+Peter said, See, we have left our homes and followed You. And He said to them, Truly, I say to you, there is no one who has left house or wife or brothers or parents or children, for the sake of the kingdom of God, who will not receive many times more in this time, and in the age to come eternal life (Luke 18:28-30).
 
 WHEN WE STAY WITH PEOPLE FOR SOME TIME 
 
@@ -395,11 +407,15 @@ THAT IS WHY NOAH IS MARCUS' APPRENTICE
 
 HIS DISCIPLE
 
-YOU CAN SEE IT
+AND TYLER IS DISCIPLE OF NOAH
 
-SO IS BRENTON BY ASSOCIATION
+AND ME AND CORNELIO ARE THE TWO NIGURAS
 
-AND SO WE DONT LEARN THROUGH ILM AL-KALAM
+BUT THE POINT IS
+
+THERE IS ONLY ONE WAY TO LEARN
+
+IT IS NOT THROUGH ILM AL-KALAM
 
 ILM AL-KALAM IS OPPOSITE OF AKSENAYUTHA 
 
@@ -539,7 +555,7 @@ So that was the message this morning
 
 Palendrai we can stay for 3 days 
 
-Then we can stay at Свято-Духов монастырь (Вильнюс) 
+Then we can stay at Свято-Духов монастырь
 
 But I disobeyed Didache by not working with my hands 
 
@@ -561,13 +577,13 @@ Please help me to make it right Father
 
 I will go there and work with my hands 
 
-Aksenaye can stay in Palendrai or any monastery or zawiya if we explain we are aksenaye (those who have renounced the world through Christian Diksha, the One Baptism) including our himes and we follow the Didache and travel from one monastery to another and ask for shelter and food in exchange for working with our hands.
+Aksenaye can stay in Palendrai or any monastery or zawiya if we explain we are aksenaye (those who have renounced the world through Christian Diksha, the One Baptism) including our homes and we follow the Didache and travel from one monastery to another and ask for shelter and food in exchange for working with our hands.
 
 Therefore I need to print off the Didache in every language or translate it
 
 To show customs and police and authorities or politicians or kings or rulers or emperors or anyone who asks us about our xeniteia
 
-And dayras and zawiyas and gurdwaras exists for the aksenaye
+And dayras and zawiyas and gurdwaras exist for the aksenaye
 
 The aksenaye travel from one to another
 
@@ -631,7 +647,7 @@ I WILL MAKE A CONTRIBUTION TO CORRECTING THIS MISCONCEPTION
 
 BECAUSE THE IHIDAYE (CHRISTIANS) ARE AKSENAYUTHA 
 
-AND AKSENAYUTHA IS THE FIRST STEP OF THE IHIDAYE (CHRISTIANS) WHEN THEY TAKE CHRISTIAN DIKSHA (CHRISTIAN BAPTISM) AND RENOUNCE THE WORLD BY VOW 
+AKSENAYUTHA IS THE FIRST STEP OF THE IHIDAYE (CHRISTIANS) WHEN THEY TAKE CHRISTIAN DIKSHA (CHRISTIAN BAPTISM) AND RENOUNCE THE WORLD BY VOW 
 
 THAT IS THE CHRISTIAN INITIATION 
 
@@ -685,11 +701,11 @@ THAT IS WHY I PRAY LORD
 
 THAT MY LIFE MAY BE THE BOOK ON AKSENAYUTHA MORE THAN ANYTHING 
 
-BECAUSE IT SEEMS THERE ARE MISCONCEPTIONS THAT IHIDAYE (CHRISTIANS, ANOINTED ONES) AND SOMEHOW NOT AKSENAYE 
+BECAUSE IT SEEMS THERE ARE MISCONCEPTIONS THAT IHIDAYE (CHRISTIANS, ANOINTED ONES) ARE SOMEHOW NOT AKSENAYE 
 
 LIKE SOMEHOW ONLY JAIN IHIDAYE PRACTICE VIHAR (PERMANENT PILGRIMAGE) 
 
-BUT IT IS YOUR BODY, THOSE WHO BELONG TO YOU, YOUR CHURCH, YOUR ECCLESIA, YOUR BODY, THE PILLAR AND GROUND OF THE TRUTH, THE ROYAL PRIESTHOOD, THE HOLY NATION 
+BUT IT IS YOUR BODY, THOSE WHO BELONG TO YOU, YOUR CHURCH, YOUR ECCLESIA, THE PILLAR AND GROUND OF THE TRUTH, THE ROYAL PRIESTHOOD, THE HOLY NATION 
 
 WHO HAVE TO MODEL AKSENAYUTHA TO THE WORLD 
 
@@ -701,8 +717,7 @@ AND WE, THE IHIDAYE, YOUR SERVANTS, FOLLOW YOU LORD
 
 WE FOLLOW YOU WHEREVER YOU GO LORD 
 
-Revelation 14:4-5
-It is these who have not defiled themselves with women, for they are virgins (ihidaye); these follow the Lamb wherever he goes. They have been redeemed from humankind as firstfruits for God and the Lamb, and in their mouth no lie was found; they are blameless.
+It is these who have not defiled themselves with women, for they are virgins (ihidaye); these follow the Lamb wherever he goes. They have been redeemed from humankind as firstfruits for God and the Lamb, and in their mouth no lie was found; they are blameless (Revelation 14:4-5)
 
 THERE'S ONLY ONE WAY TO LEARN
 
