@@ -36,4 +36,4 @@ Stop trying to put God in a box!
 
 He cannot be confined or limited
 
-He will embarrass the status quo
+He will embarrass the stereotypes and status quos
