@@ -2,7 +2,7 @@ What is a sack of saints?
 
 Syr. ܬܰܪܡܺܝܠܳܐ ܕܩܰܕܺܝܫܶܐ (tarmīlā d-qaddīšē)
 
-A bag containing relics of saints that itinerant monks carried with them on aksenayutha.
+A bag containing relics of saints that aksenaye (itinerant monks) carried with them on aksenayutha (itinerant monasticism).
 
 Praise to the one holy Father who dwells in the souls of those who fear Him
 
