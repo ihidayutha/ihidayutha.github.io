@@ -16,7 +16,7 @@ This is from the West Syriac Liturgy of the Hours (Shhimo).
 
 Such prayers can only come from the holy Church
 
-I feel the Lord is calling me to aksenayutha = traveling monasticism
+I feel the Lord is calling me to aksenayutha
 
 Aksenayutha = itinerant ihidayutha (monasticism)
 
